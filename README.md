@@ -1,1 +1,1 @@
-# -achovnice
+# -Šachovnice
